@@ -1,1 +1,1 @@
-# ayriec-Yet-Portfolio-BSIT-2C
+# Jayriec-Yet-Portfolio-BSIT-2C
